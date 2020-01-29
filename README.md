@@ -1,0 +1,2 @@
+# Rashi
+I am a girl named Rashani Hathurusinghe from Kandy, Sri Lanka, Qualified as a Software Engineer(SQA) in Java institute and Networking computer technology in Informatics academy Singapore. A bright, talented and ambitious character with a strong technical background who possesses self-discipline and the ability to work with the minimum of supervision. Able to play a key role throughout the software development. Processing a good team spirit and take the right risk and manage it with good manner.
